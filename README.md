@@ -8,4 +8,3 @@
 - 📫 How to reach me: Twitter - @FarhanM_albo
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: NASA’s internet speed is 91 GB per second.
--->
